@@ -160,13 +160,6 @@ LinkedIn: Junaid Tanoli
 Breaking language barriers, one translation at a time.
 
 
----
-
-Junaid, yeh **README fully polished, AI-project + GitHub + resume friendly** hai.  
-Agar chaho main **resume bullets** aur **project description for portfolio** bhi isi style bana doon, jisse recruiters impress ho jaaye 😎  
-
-Chaho usko next step ke liye bana doon?
-
 
 
 
